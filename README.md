@@ -95,4 +95,4 @@ These steps will ensure smooth navigation and utilization of the system while ma
 
 ---
 
-For questions, reach out to sayedshaikh@gmail.com
+For questions, reach out to sayedshaikh570@gmail.com
